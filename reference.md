@@ -6,3 +6,9 @@ https://b23.tv/OolTJB?share_medium=android&share_source=qq&bbid=XZ08A9D019097D30
 
 一个游戏是如何被设计和开发出来的 - 窦月汐的文章 - 知乎
 https://zhuanlan.zhihu.com/p/25292463
+
+https://www.bilibili.com/read/cv9657877?spm_id_from=333.999.0.0
+
+https://www.bilibili.com/read/cv5063262?spm_id_from=333.999.0.0
+
+
