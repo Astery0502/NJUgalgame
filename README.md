@@ -10,6 +10,8 @@ NJUのgalgame同好会。
 #### 引导
 总体计划见GeneralPlan, 技术计划见TecPlan.
 
+如果有一些个人的想法、经验什么的可以放到doc文件夹内。
+
 
 
 
